@@ -1,0 +1,9 @@
+The plain had just took off and was ascending the newyork  sky. The countless  shining little windows of many towers in the city skylines were like bits of gold spread over the city. Angela was sitting  next to the window on the very front rows of the plain and was staring deeply at the view. It was not the first time she had sat to watch at the bright lights of the city at night, yet this time she was looking at them as if she was trying to find something among them.she sighed and wispered oh, no where can get any close to how nighT looks like here. Hmmm, I,m gonna miss it.
+
+Excuse me, sorry but I couldn't hear you, did you say something, Said the guy sitting next to her. She turned to him and looked at him a few moments with both boredom and curosity. The guy was smiling at him and sitting calm and comfortable in his wide seat with one earphone in his ear on the opposite side of his head. He was middle-aged but still in shape and well dressed and looked keen to chat.
+Well, I said I will miss this city" and you definitely heard what I said it's just your lame way of starting a conversation with me! She said it with a sarcastic tone that had some emusement in it. 
+The guy erupted with laugh and said "now this time truly sorry! Caught me so guilty! And continued laughing a little bit more. She looked a bit more satisfied and amused.
+The man asked were you visiting here? She said, yep, for ten years!
+_oh !! And now you're leaving!
+she looked at him raise an eyebrow, the man suddenly got out of his surprise, and said with a haste, um I mean how come you leaving? A new job? She said, well yeah I am changing my job. The man looked satisfied with his guess. 
+OBVIOUSLY, I will NEED to work a new job when I leave here! ... the man quickly returned to his state of confusion and discomfort. She seemed to be satisfied with playing him, continued, but this is the fate of most people here; 
